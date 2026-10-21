@@ -1,0 +1,1 @@
+# cam-scanner-by-alae-privacy-policy
